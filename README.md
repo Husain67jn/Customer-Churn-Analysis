@@ -39,3 +39,17 @@ These insights can help telecom companies:
 
 ---
 
+## 📸 Visual Samples
+
+![Screenshot 2025-04-05 175314](https://github.com/user-attachments/assets/1ea25f51-5041-4792-becf-72da13640aa3)
+
+
+
+![Screenshot 2025-04-05 175330](https://github.com/user-attachments/assets/25cd88d9-f50a-4c85-8251-ee9f8f9f29a7)
+
+
+---
+
+## 🔗 Connect
+
+Feel free to check out my [LinkedIn](https://www.linkedin.com/in/husain-kaleem-0b4150309/) or message me for collaboration or feedback.
